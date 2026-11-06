@@ -1,2 +1,1 @@
-# A_252410103016_Risma-Ayuning-Tiyas_C
-UTS PBO PRAKTIKUM
+gatau
